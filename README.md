@@ -1,4 +1,4 @@
-- 👋 Hi, I’m RiTz0303,Also known as Ritz, Raven, IdIoT0303.
+- 👋 Hi, I’m RiTz0303,Also known as Ritz,IdIoT0303.
 - 👀 I’m interested in Gaming, mostly minecraft,I am also a weeb soooo ANIME, I somewhat make memes of my friends, recently, figuring out github. I also make a lot of glass paintings, drawings, and paitings in general instead of studying.
 - 🌱 I’m currently learning how to code and figure out OBS so I can stream live. Getting better in anime glass paintings too!
 - 💞️ I’m looking to collaborate on More minecraft, Art and maybe some coding help.
